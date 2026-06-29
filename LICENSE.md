@@ -1,4 +1,4 @@
-
+IPVanish automatic Plugin: multi-device-support & 24/7-support offers the most advanced IPVanish plugin, with multi-device-support and 24/7-support. Ideal for users who value
 
 
 
